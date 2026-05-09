@@ -1,4 +1,4 @@
-
+Get the ultimate MyFitnessPal for macOS extension with MyFitnessPal for macOS smart Extension: voice-coaching & water-intake-tracking. Featuring voice-coaching and
 
 
 
